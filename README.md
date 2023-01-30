@@ -1,1 +1,1 @@
-### All credit goes https://www.luv2code.com/
+### All credit goes to https://www.luv2code.com/
